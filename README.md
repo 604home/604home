@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @604home
 - 👀 I’m interested in python!!!😊😊😊
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ? is go to 
-- 😄 Pronouns: ...
+- 💞️ I’m looking to collaborate on ? no !!! i am a pupil !!!
+- 📫 How to reach me ? is go to paruny@qq.com or 275694861@qq.com
+- 😄 Pronouns: None
 - ⚡ Fun fact: 10/3 = 3.33335
 
 <!---
